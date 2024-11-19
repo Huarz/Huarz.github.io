@@ -1,4 +1,4 @@
-# Huarz`s log cabin :link: https://Huarz.github.io 
+# Huarz`s tea house :link: https://Huarz.github.io 
 ### :page_facing_up: [2](https://Huarz.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 507 
